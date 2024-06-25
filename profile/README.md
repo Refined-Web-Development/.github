@@ -3,8 +3,8 @@
 
 Garrett Snearly (Owner)
 
-936-206-0025
+Phone: (936)-206-0025
 
-garrett@refinedwebdevelopment.com
+Email: garrett@refinedwebdevelopment.com
 
-https://www.refinedwebdevelopment.com
+Website: https://www.refinedwebdevelopment.com
