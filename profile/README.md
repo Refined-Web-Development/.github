@@ -7,4 +7,4 @@ Garrett Snearly (Owner)
 
 garrett@refinedwebdevelopment.com
 
-![](https://www.refinedwebdevelopment.com)
+https://www.refinedwebdevelopment.com
